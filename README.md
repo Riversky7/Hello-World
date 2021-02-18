@@ -1,2 +1,2 @@
 # Hello-World
-Cumprindo as tarefas básicas para me tornar um profissional confiável, de excelência e qualidade.
+Cumprindo as tarefas básicas, avançando gradativamente para as mais complexas, e assim, tornar-me um profissional habilitado, com excelência e qualidade.
